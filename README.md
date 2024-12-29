@@ -2,7 +2,8 @@
 
 [REDO SOON.. maybe never idk]
 
-![Untitled7_20241227184843](https://github.com/user-attachments/assets/5b921983-c920-440b-a9a5-2ee6a922818d)
+![Untitled10_20241229223349](https://github.com/user-attachments/assets/501686bc-0cee-4a2f-aee6-d80a689f3f94)
+
 
 ➢ ﹔୭ ˚. ; I go by ren and more names, although nicknames are fine by me i love them!! . ,, please dont call me lennox/len unless close.
 
